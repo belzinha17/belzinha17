@@ -3,4 +3,4 @@ Bem-Vindos ao meu perfil💟
  Estou estudando no Alura
  Utilizo esse espaço para organização 
 
- ![](https://giphy.com/gifs/dog-puppy-ITacRy2zH4vMQ)
+ ![](https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExMTExb21ieWprZjN6NjU2M256NWtmdWFlaWIxZGg2aGdlcjJtY3A4cyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/ITacRy2zH4vMQ/giphy.gif)
